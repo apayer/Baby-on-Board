@@ -1,2 +1,2 @@
 # Baby-on-Board
-A Nordic Perspective in baby caring
+A Nordic Perspective in Baby Caring
